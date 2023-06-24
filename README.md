@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bharath6300000
+- 👋 Hi, I’m Targaryen
 - 👀 I’m interested in softwares 
 - 🌱 I’m currently learning all the shits
 - 💞️ I’m looking to collaborate with humans
