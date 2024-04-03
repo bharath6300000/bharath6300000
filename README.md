@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Targaryen
-- 👀 I’m interested in softwares 
+- 👋 Hi, I’m Bharthwaj.N
+- 👀 I’m interested in front-end web development 
 - 🌱 I’m currently learning all the shits
 - 💞️ I’m looking to collaborate with humans
 - 📫 How to reach me just tag 👉 Targaryen420 (tele)
